@@ -1,1 +1,1 @@
-Abu Iusupov
+Abu
